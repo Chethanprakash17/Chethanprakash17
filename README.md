@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a CS  student at R V College of engineering <br>
+I am a CS  student at R V College of engineering,bengaluru <br>
 
 
 ## 🌐 Socials:
